@@ -233,4 +233,4 @@ DRAGON BALL: Sparking! ZERO is available as a complete free version with all fea
 Don't miss out on the action! Download DRAGON BALL: Sparking! ZERO for Windows now and immerse yourself in the ultimate fighting experience!
 
 ---
-**Last updated:** 2026-10-09 01:52:17 UTC
+**Last updated:** 2026-10-09 08:43:40 UTC
